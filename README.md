@@ -1,3 +1,15 @@
+
+wdokdl
+d
+dcf
+dwfewd
+ewdwedf
+edwd
+dwed
+weeed
+edw
+ewdew
+ed
 # mm
 hay gul
 hgh
