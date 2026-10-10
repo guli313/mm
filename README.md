@@ -3,6 +3,9 @@ tigjrkgj
 rigjwrio
 iorgjritgj
 jwritwro
+tg
+tgtg
+trg
 gjwotgjqeo
 gjrkgjow
 rotjroj
